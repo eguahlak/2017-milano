@@ -36,6 +36,9 @@ Til sidst sætter vi os på en café og venter på at de åbner køkkenet.
 Tjeneren har ikke noget menukort, men løber ud og spørger kokken hver gang.
 Men så er maden også både frisk og god.
 
+Efter den ægteskabsbevarende frokost returnerer vi til hotellet, hvor bagagen er på værelset og vi får en nøgle.
+Et kort pitstop 
+
 Hjemmefra har vi i et anfald af midlertidig sindssyge og overmod bestilt pladser på Teatro della Scala.
 Det blev Wagners "Mestersangerne fra Nürnberg" (dog ikke Düsseldorf), den tager heldigvis kun fem timer.
 Men billetterne skal hentes i "The box office", som ligger ... nej ikke i la Scala's bygning, men ... 
