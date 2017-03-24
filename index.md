@@ -47,6 +47,8 @@ nede i metrostationen ved domkirken. Er der et skilt på la Scala?
 Nej det er der jo ingen grund til, for det ved alle jo!
 Men manden i la Scala's kiosk var ret træt af spørgsmålet og tilsvarende uhøflig.
 
+![Teatro della Scala ligner stadig en forvokset villa](image/la-scala.png)
+
 Billetterne bliver hentet hos en mand, der sidder med ca. halvtreds konvolutter med bestilte billetter,
 som han så nøjsommeligt bladrer igennem fra ende til anden, for at finde vores konvolut.
 Måske skulle nogen lære ham om alfabetet og dets fortræffeligheder en dag.
