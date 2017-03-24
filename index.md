@@ -26,6 +26,8 @@ Klokken ti lander vi i Milano Linate. Der går en bus 73 fra lufthavnen til cent
 Det skiltes der selvfølgelig ikke til, men den søde dame i information fortæller os at den går fra udgang otte,
 og billetterne skal købes i aviskiosken.
 
+![Milanos domkirke med poster Frans besøg](image/il-duomo.png)
+
 Fra bussens endestation er der ti minutters gang rundt om domkirken til vores hotel.
 Værelserne er ikke klar endnu, det skal de heller ikke være før kl. tre, så vi stiller bagagen i receptionen.
 Receptionisten lover at den bliver stillet op på værelse 207 når det er klar, ved et-tiden.
