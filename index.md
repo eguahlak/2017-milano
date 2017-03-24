@@ -37,7 +37,8 @@ Tjeneren har ikke noget menukort, men løber ud og spørger kokken hver gang.
 Men så er maden også både frisk og god.
 
 Efter den ægteskabsbevarende frokost returnerer vi til hotellet, hvor bagagen er på værelset og vi får en nøgle.
-Et kort pitstop 
+Et kort pitstop gik turen til domkirken, som desværre er lukket for resten af dagen på grund af pave Frans besøg i Milano imorgen lørdag.
+Men den åbner igen imorgen eftermiddag, så det er ok.
 
 Hjemmefra har vi i et anfald af midlertidig sindssyge og overmod bestilt pladser på Teatro della Scala.
 Det blev Wagners "Mestersangerne fra Nürnberg" (dog ikke Düsseldorf), den tager heldigvis kun fem timer.
@@ -46,6 +47,40 @@ nede i metrostationen ved domkirken. Er der et skilt på la Scala?
 Nej det er der jo ingen grund til, for det ved alle jo!
 Men manden i la Scala's kiosk var ret træt af spørgsmålet og tilsvarende uhøflig.
 
-Billetterne blev hentet hos en mand, der sad med ca. halvtreds konvolutter med bestilte billetter,
-som han så nøjsommeligt bladrede igennem fra ende til anden, for at finde vores konvolut.
+Billetterne bliver hentet hos en mand, der sidder med ca. halvtreds konvolutter med bestilte billetter,
+som han så nøjsommeligt bladrer igennem fra ende til anden, for at finde vores konvolut.
 Måske skulle nogen lære ham om alfabetet og dets fortræffeligheder en dag.
+Da vi nu er i metroen, køber vi også en todages billet til hver.
+Den gælder til al offentlig transport i det meste af Milano og koster 8,25€.
+
+Hjemmefra har vi også reserveret billetter til da Vinci's den sidste nadver.
+Det er først kl. 16:45 så vi fordriver tiden med at gå op til Castello Sforzesco,
+En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
+Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
+Da vi når til Santa Maria delle Grazie, hvor maleriet pryder den ene endevæg i munkenes spisesal,
+er der stadig femogtyve minutter til rundvisningen.
+
+Det skal lige siges, at der kun bliver lukket 30 besøgende ind til maleriet hver kvarter,
+så man **SKAL** bestille tid, og man skal være der til tiden.
+For godt ti år siden, hvor vi var i området sammen med Lindegaard, og trafikken drillede,
+måtte Anders og Jacob smide koner og børn af så de i det mindste kunne nå "vinduet".
+Anders og Jacob måtte nøjes med at parkere biler - ingen nadver til dem!
+
+Her står vi så med vores voucher, en flink mand siger, at vi bare skal stille os til venstre eller til højre for hovedindgangen,
+så kommer der en med vores rigtige billetter.
+Vi bliver en anelse utrygge, det står der ikke noget om på voucheren, men selv efter en kontrolhenvendelse i billetlugen,
+er bekskeden den samme.
+16:40 er vi lidt mere end en anelse utrygge.
+Men så dukker manden op, og vi bliver udstyrel med radiogrej og en lidt forvirret men ganske vidende guide.
+
+Konklusionen på den tur er; at italienere er noget for sig selv, og at den sidste nadver fortjener at blive set i det rum,
+maleriet er lavet til.
+Hvis man stiller sig halvt nede i salen, midt i, bliver man en del af scenariet.
+
+På vejen hjem må vi lige se de romerske søjler foran, og mosaikkerne fra det 5. århundrede indeni San Lorenzo Maggiore kirken.
+
+Ømme fødder, linie 3 går lige til døren.
+45 minutter på hotellet derefter rundt om hjørnet til pizzaer fra en brændefyret stenovn, hvidvin, dessert,
+og selvfølgelig espresso og grappa.
+
+Lang dag :-)
