@@ -61,6 +61,9 @@ Hjemmefra har vi også reserveret billetter til da Vinci's den sidste nadver.
 Det er først kl. 16:45 så vi fordriver tiden med at gå op til Castello Sforzesco,
 En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
 Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
+
+![Castello Sforzesco](image/sforza-1.png)
+
 Da vi når til Santa Maria delle Grazie, hvor maleriet pryder den ene endevæg i munkenes spisesal,
 er der stadig femogtyve minutter til rundvisningen.
 
@@ -124,11 +127,17 @@ Det lykkedes, restauranten vi finder påstår, at de laver al deres mad fra grun
 Det smager også sådan, vi får en pastaret med jomfruhummermousse, til gengæld havde de ikke kaffe.
 Italienerne bliver mere og mere uforståelige.
 
+![Castello Sforzesco](image/sforza-2.png)
+
 Næste stop er Castello Sforzesco, denne gang museerne, der er otte af dem.
 Vi havde dog valgt tre ud, men bliver lokket igennem et par stykker mere.
 Et med italiensk møbelarkitektur gennem tiden er faktisk ret godt skruet sammen.
 Et af dem vi havde valgt, musikinstrumentmuseet kan vi ikke finde indgangen til.
 Vi får dog set Michelangelos ufærdige Pieta.
 
+![Castello Sforzesco](image/sforza-3.png)
+
+På vejen hjem ligger der en lille reneaissancekirke med nogen meget velholdte fresco'er (kalkmalerier).
+Den er meget smuk og meget mere overskuelig end Castello Sforzesco.
 
 
