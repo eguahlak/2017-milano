@@ -64,6 +64,8 @@ Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
 
 ![Castello Sforzesco](image/sforza-1.png)
 
+![Castello Sforzesco](image/sforza-2.png)
+
 Da vi når til Santa Maria delle Grazie, hvor maleriet pryder den ene endevæg i munkenes spisesal,
 er der stadig femogtyve minutter til rundvisningen.
 
@@ -87,6 +89,8 @@ Hvis man stiller sig halvt nede i salen, midt i, smelter perspektivet i billedet
 ![Den sidste nadver](image/sidste-nadver.png)
 
 På vejen hjem må vi lige se de romerske søjler foran og mosaikkerne fra det 5. århundrede indeni San Lorenzo Maggiore kirken.
+
+![San Lorenzo Maggiore med portio](image/portio-romana.png)
 
 Ømme fødder, linie 3 går lige til døren.
 45 minutter på hotellet derefter rundt om hjørnet til pizzaer fra en brændefyret stenovn, hvidvin, dessert,
@@ -127,8 +131,6 @@ Det lykkedes, restauranten vi finder påstår, at de laver al deres mad fra grun
 Det smager også sådan, vi får en pastaret med jomfruhummermousse, til gengæld havde de ikke kaffe.
 Italienerne bliver mere og mere uforståelige.
 
-![Castello Sforzesco](image/sforza-2.png)
-
 Næste stop er Castello Sforzesco, denne gang museerne, der er otte af dem.
 Vi havde dog valgt tre ud, men bliver lokket igennem et par stykker mere.
 Et med italiensk møbelarkitektur gennem tiden er faktisk ret godt skruet sammen.
@@ -139,5 +141,44 @@ Vi får dog set Michelangelos ufærdige Pieta.
 
 På vejen hjem ligger der en lille reneaissancekirke med nogen meget velholdte fresco'er (kalkmalerier).
 Den er meget smuk og meget mere overskuelig end Castello Sforzesco.
+I forbindelse med kirken ligger der et lille arkæologisk museum.
+Anna er lidt træt i benene og gider ikke rigtigt, måske ihukommende et lignende museum i Volterra,
+der viste sig at udstille flere tusind estruskiske urner.
+Men der er en model af Milano fra romertiden, kan man se udefra,
+så Anders må lige ind, det er jo bare et lille museum.
+Modellen er rigtig fin og museet er fakstisk bygget i forbindelse med resterne af Mediolanums (Milanos navn i romertiden) hippodrom.
+Resterne er to ganske velbevarede tårne.
+
+![Hippodromen i Mediolanum](image/hippodrome.png)
+
+Muset er viser det sig ikke så lille endda,
+der er en skjult bygning med en etage med ting fra barbarerne,
+en etage med etruskiske ting, en med romerting og en med græske vaser.
+De springes klogeligt over.
+
+I stedet finder vi en café og får en te, en dobbelt espresso og to croissanter.
+
+Metroen tilbage til Duomo, hvor vi stiller os i kø for at få billetter til kirken og taget.
+Så kom vi alligevel til at stå i ikke bare en kø, for der er både kø ved billetlugen og ved indgangen.
+Køen ved billetlugen er den mest uforståelige, det tager ualmindeligt lang tid.
+Der er kun fire produkter, som ganske vist kan kombineres: domkirke, museum, tur på taget med elevator og tur på taget ad trappen.
+Hver ekspedition tager flere minutter, hvorfor? og hvorfor åbner de ikke den sidste luge?
+Fordi billetprinteren ikke kan følge med! Det er ren sundhed-splatform!
+
+Nummer to kø går betydelig hurtigere, der skal vi bare sikkerhedscheckes.
+Kirken er imponerende, rundetårn kan mageligt stå derinde.
+Der er plads til 40.000 mennesker, så køerne synes ikke af meget, når de først er kommet ind.
+Der er kommet nyt lys derinde, så kirken ikke ser så dyster ud mere, og man kan se hvor mange detaljer, der også er inde i kirken.
+På kirkens spir står den hellige jomfru og velsigner byen, nu er der kommet en 1:1 kopi inde i kirken.
+
+![Maria nedsteget fra spiret](image/maria-kopi.png)
+
+Den gamle statue af Bartolomæus, der som bekendt blev flået levende, står stadig på sin plads:
+
+![Bartolomæus ude af sit gode skind](image/bartolomo.png)
+
+Billedet er desværre blevet en smule uskarpt,
+så det kan være svært, at se, at det er hans egen hud, han har slængt over skulderen.
+Godt der er en læge tilstede.
 
 
