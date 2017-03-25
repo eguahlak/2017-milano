@@ -109,7 +109,7 @@ for halvt så mange tilhørere til sine taler.
 
 ![Donald Trumps våde drøm](image/il-papa-2.png)
 
-Napoleon syntedes, at der manglede et ordentligt kustmuseum i Milano.
+Napoleon mente, at der manglede et ordentligt kustmuseum i Milano.
 Han bad derfor alle betydende italienske familier om at donere nogen **gode** billeder,
 helt frivilligt selvfølgelig, til samlingen.
 De færreste mente, at det var befordrende for deres fremtid ikke at efterkomme ønsket.
