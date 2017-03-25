@@ -99,3 +99,13 @@ alligevel er der allerede kvart over ni kø helt herned.
 
 ![Kø til pavens tale foran il Duomo](image/il-papa-1.png)
 
+Morgenmaden på hotellet er ikke til fem tykmælksskåle på Christians skala,
+men teen var stærk og kaffen god.
+Vi opgav at høre pave Frans, vi er ikke særligt glade for at stå i kø.
+Istedet begav vi os mod Milanos besdste kunstudstilling i Pinacoteta di Brera.
+På vejen skulle dog lige se om paven ville blive helt alene uden os.
+Det så ikke ud til at være tilfældet, vi tror Donald ville have givet sin højre arm
+for halvt så mange tilhørere til sine taler.
+
+![Donald Trumps våde drøm](image/il-papa-2.png)
+
