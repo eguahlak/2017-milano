@@ -102,10 +102,33 @@ alligevel er der allerede kvart over ni kø helt herned.
 Morgenmaden på hotellet er ikke til fem tykmælksskåle på Christians skala,
 men teen var stærk og kaffen god.
 Vi opgav at høre pave Frans, vi er ikke særligt glade for at stå i kø.
-Istedet begav vi os mod Milanos besdste kunstudstilling i Pinacoteta di Brera.
-På vejen skulle dog lige se om paven ville blive helt alene uden os.
-Det så ikke ud til at være tilfældet, vi tror Donald ville have givet sin højre arm
+Istedet begav vi os mod Milanos besdste kunstudstilling i Pinacoteca di Brera.
+På vejen skal vi dog lige se om paven ville blive helt alene uden os.
+Det så ikke ud til at være tilfældet, vi tror Donald Trump ville have givet sin højre hånd (han siger den er ret stor)
 for halvt så mange tilhørere til sine taler.
 
 ![Donald Trumps våde drøm](image/il-papa-2.png)
+
+Napoleon syntedes, at der manglede et ordentligt kustmuseum i Milano.
+Han bad derfor alle betydende italienske familier om at donere nogen **gode** billeder,
+helt frivilligt selvfølgelig, til samlingen.
+De færreste mente, at det var befordrende for deres fremtid ikke at efterkomme ønsket.
+
+Det er der kommet en fremragende samling ud af, faktisk en af de bedste i Italien.
+Bl.a. dette ret kendte billede af den døde Jesus:
+
+![Dead Christ, Brera Milano](image/dead-christ.jpg)
+
+Men der var også ret koldt på Brera, så vi må finde en lille restaurant med servering i solen.
+Det lykkedes, restauranten vi finder påstår, at de laver al deres mad fra grunden.
+Det smager også sådan, vi får en pastaret med jomfruhummermousse, til gengæld havde de ikke kaffe.
+Italienerne bliver mere og mere uforståelige.
+
+Næste stop er Castello Sforzesco, denne gang museerne, der er otte af dem.
+Vi havde dog valgt tre ud, men bliver lokket igennem et par stykker mere.
+Et med italiensk møbelarkitektur gennem tiden er faktisk ret godt skruet sammen.
+Et af dem vi havde valgt, musikinstrumentmuseet kan vi ikke finde indgangen til.
+Vi får dog set Michelangelos ufærdige Pieta.
+
+
 
