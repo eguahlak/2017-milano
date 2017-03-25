@@ -182,4 +182,11 @@ Billedet er desværre blevet en smule uskarpt,
 så det kan være svært, at se, at det er hans egen hud, han har slængt over skulderen.
 Godt der er en læge tilstede.
 
+Over for domkirken er der en "Megastore" med alt fra børnebøger over computere og kameraer
+til et musikmarked med CD'er og nyoptrykte LP'er.
+Her køber vi nogen kolde øl og vand og tager hjem til hotellet og smækker stængerne op en timestid inden middagen.
+Den indtager vi på den samme restaurant, som igår.
+Vi skiftede dog pizzaerne ud med pasta med karl-johan og små pølser.
+Ingen udskiftning i desserten og grappaerne.
 
+## Søndag den 26. marts 2017
