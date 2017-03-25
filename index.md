@@ -97,5 +97,5 @@ Idag stod vi først op klokken otte, det var rart.
 Hotellet ligger omkring 100 meter fra il Duomo, hvor paven skal tale klokken elleve,
 alligevel er der allerede kvart over ni kø helt herned.
 
-![Kø til pavens tale foran il Duomo](image/la-papa-1.png)
+![Kø til pavens tale foran il Duomo](image/il-papa-1.png)
 
