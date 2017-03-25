@@ -59,10 +59,11 @@ Den gælder til al offentlig transport i det meste af Milano og koster 8,25€.
 
 Hjemmefra har vi også reserveret billetter til da Vinci's den sidste nadver.
 Det er først kl. 16:45 så vi fordriver tiden med at gå op til Castello Sforzesco,
-En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
-Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
 
 ![Castello Sforzesco](image/sforza-1.png)
+
+En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
+Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
 
 ![Castello Sforzesco](image/sforza-2.png)
 
@@ -151,9 +152,9 @@ Resterne er to ganske velbevarede tårne.
 
 ![Hippodromen i Mediolanum](image/hippodrome.png)
 
-Muset er viser det sig ikke så lille endda,
+Muset er viser det sig, er ikke så lille endda,
 der er en skjult bygning med en etage med ting fra barbarerne,
-en etage med etruskiske ting, en med romerting og en med græske vaser.
+en etage med etruskiske ting (sikkert urner), en med romerting og en med græske vaser.
 De springes klogeligt over.
 
 I stedet finder vi en café og får en te, en dobbelt espresso og to croissanter.
