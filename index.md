@@ -1,4 +1,4 @@
-# Milano tur retur 2016
+# Milano tur retur 2017
 
 ## Fredag den 24. marts 2017
 
@@ -75,16 +75,27 @@ så kommer der en med vores rigtige billetter.
 Vi bliver en anelse utrygge, det står der ikke noget om på voucheren, men selv efter en kontrolhenvendelse i billetlugen,
 er bekskeden den samme.
 16:40 er vi lidt mere end en anelse utrygge.
-Men så dukker manden op, og vi bliver udstyrel med radiogrej og en lidt forvirret men ganske vidende guide.
+Men så dukker manden op, og vi bliver udstyret med radiogrej og en lidt forvirret men ganske vidende guide.
 
 Konklusionen på den tur er; at italienere er noget for sig selv, og at den sidste nadver fortjener at blive set i det rum,
 maleriet er lavet til.
-Hvis man stiller sig halvt nede i salen, midt i, bliver man en del af scenariet.
+Hvis man stiller sig halvt nede i salen, midt i, smelter perspektivet i billedet og rummet sammen, og man bliver en del af scenariet.
 
-På vejen hjem må vi lige se de romerske søjler foran, og mosaikkerne fra det 5. århundrede indeni San Lorenzo Maggiore kirken.
+![Den sidste nadver](image/sidste-nadver.png)
+
+På vejen hjem må vi lige se de romerske søjler foran og mosaikkerne fra det 5. århundrede indeni San Lorenzo Maggiore kirken.
 
 Ømme fødder, linie 3 går lige til døren.
 45 minutter på hotellet derefter rundt om hjørnet til pizzaer fra en brændefyret stenovn, hvidvin, dessert,
 og selvfølgelig espresso og grappa.
 
 Lang dag :-)
+
+## Lørdag den 25. marts 2017
+
+Idag stod vi først op klokken otte, det var rart.
+Hotellet ligger omkring 100 meter fra il Duomo, hvor paven skal tale klokken elleve,
+alligevel er der allerede kvart over ni kø helt herned.
+
+![Kø til pavens tale foran il Duomo](image/la-papa-1.png)
+
