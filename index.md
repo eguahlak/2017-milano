@@ -201,11 +201,49 @@ Ved et "tilfælde" åbner forretningerne også deromkring ...
 Lad os springe til klokken et, hvor vi står i den foreløbig sidste kø,
 til taget på domkirken.
 Der var ikke så langt op som vi huskede det, allerede efter 172 trin er man ude i det fri 
+
 ![Taget af domkirken](image/modlys.png)
+
 og efter yderligere 62 står man på tagryggen.
-Herfra kan så den rigtige Maria på det 108m høje spir
+Herfra kan så den rigtige Maria på det 108m høje spir.
+
 ![Taget af domkirken](image/engle.png)
 
 Det er en fantastisk oplevelse!
+Hvis man kigger godt efter, kan man se små bedende personer på bagsiden af dekorationerne,
+på steder hvor ingen nogensinde ville kunne se dem nedefra.
 
-Billeder følger, for nu skal vi snart ud af døren til fem timers Wagner i la Scala!
+![Taget af domkirken](image/hidden-prayers.png)
+
+Der er også et fabelagtigt kig ud over Milano.
+Man kan bl.a. se nok verdens mest ucharmerende højhus!
+
+![Taget af domkirken](image/ugly-house.png)
+
+Vel nede igen spiser vi frokost på restauranten lige over for vores hotel.
+Maden er ikke noget at råbe hurra for, men lamperne er fine.
+
+![Vi har ikke købt nogen med hjem](image/lampa.png)
+
+Så går turen til Teatro alla Scala, der venter fem timers selskab med Wagners Mestersangere fra Nürnberg - tror vi
+Det bliver til fem timer og fyrre minutter.
+Så vi får virkelig valuta for pengene. Vi sad på gallerierne dvs. femte etage, der er seks!
+Alligel var lyden helt tydelig, både fra orkester og sangere.
+
+![Teatro alla Scala](image/scala-1.png)
+
+Det er rigtigt godt, meget professionelt, meget Wagnersk og kun lidt kedeligt i første akt.
+Men hvor det i gamle dage var sopranerne, der kunne tillade sig at være store som flodheste, er det nu tenorerne.
+Man har lidt svært ved at forestille sig, at Overmestersangerens datter skulle forelske sig i Kung fu Pandas lillebror ved første blik.
+
+![Teatro alla Scala](image/scala-1.png)
+
+Slutningen i Mestersangerne, Hvor Wagner priser den ægte tyske kultur, er ret uhyggelig.
+Specielt når en tilskuer på rækken bagved råber "Viva Italia!" ud over hele salen før nogen når at klappe.
+
+Efter små seks timers Wagner er vi blevet sultne og trætte,
+så fantasien rækker ikke længere end at gå på samme restaurant som de to andre dage.
+Til gengæld har vi nu prøvet alle siderne i deres menukort.
+
+I morge står vi op klokken syv, så er der god tid til at nå vores fly klokken 10:55.
+Denne gang skal vi over Berlin, det bliver spændende om vi også skal spæne der ;-)
