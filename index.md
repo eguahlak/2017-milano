@@ -191,4 +191,14 @@ Ingen udskiftning i desserten og grappaerne.
 
 ## Søndag den 26. marts 2017
 
-Fortsættelse følger ...
+Sommertid har aldrig været en god idé, og det er trist hvergang, der bliver stjålet en time af ens nattesøvn.
+Men vi kommer op klokken ny-otte-isch, får vores morgenmad og er i aktion allerede lidt over ti.
+
+Ved et "tilfælde" åbner forretningerne også deromkring ...
+
+Lad os springe til klokken et, hvor vi står i den foreløbig sidste kø,
+til taget på domkirken.
+Der var ikke så langt op som vi huskede det, allerede efter 172 trin er man ude i det fri og efter yderligere 62 står man på tagrykken.
+Det er en fantastisk oplevelse!
+
+Billeder følger, for nu skal vi snart ud af døren til fem timers Wagner i la Scala!
