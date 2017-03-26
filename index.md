@@ -59,10 +59,11 @@ Den gælder til al offentlig transport i det meste af Milano og koster 8,25€.
 
 Hjemmefra har vi også reserveret billetter til da Vinci's den sidste nadver.
 Det er først kl. 16:45 så vi fordriver tiden med at gå op til Castello Sforzesco,
-En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
-Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
 
 ![Castello Sforzesco](image/sforza-1.png)
+
+En borg fra renaisancen som er monster stor og monster dyster og ligger i en helt fortryllende park.
+Borgen indeholder også en halv snes museer, dem skal vi se nogen af imorgen.
 
 ![Castello Sforzesco](image/sforza-2.png)
 
@@ -151,9 +152,9 @@ Resterne er to ganske velbevarede tårne.
 
 ![Hippodromen i Mediolanum](image/hippodrome.png)
 
-Muset er viser det sig ikke så lille endda,
+Muset er viser det sig, er ikke så lille endda,
 der er en skjult bygning med en etage med ting fra barbarerne,
-en etage med etruskiske ting, en med romerting og en med græske vaser.
+en etage med etruskiske ting (sikkert urner), en med romerting og en med græske vaser.
 De springes klogeligt over.
 
 I stedet finder vi en café og får en te, en dobbelt espresso og to croissanter.
@@ -181,4 +182,23 @@ Billedet er desværre blevet en smule uskarpt,
 så det kan være svært, at se, at det er hans egen hud, han har slængt over skulderen.
 Godt der er en læge tilstede.
 
+Over for domkirken er der en "Megastore" med alt fra børnebøger over computere og kameraer
+til et musikmarked med CD'er og nyoptrykte LP'er.
+Her køber vi nogen kolde øl og vand og tager hjem til hotellet og smækker stængerne op en timestid inden middagen.
+Den indtager vi på den samme restaurant, som igår.
+Vi skiftede dog pizzaerne ud med pasta med karl-johan og små pølser.
+Ingen udskiftning i desserten og grappaerne.
 
+## Søndag den 26. marts 2017
+
+Sommertid har aldrig været en god idé, og det er trist hvergang, der bliver stjålet en time af ens nattesøvn.
+Men vi kommer op klokken ny-otte-isch, får vores morgenmad og er i aktion allerede lidt over ti.
+
+Ved et "tilfælde" åbner forretningerne også deromkring ...
+
+Lad os springe til klokken et, hvor vi står i den foreløbig sidste kø,
+til taget på domkirken.
+Der var ikke så langt op som vi huskede det, allerede efter 172 trin er man ude i det fri og efter yderligere 62 står man på tagrykken.
+Det er en fantastisk oplevelse!
+
+Billeder følger, for nu skal vi snart ud af døren til fem timers Wagner i la Scala!
