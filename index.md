@@ -194,11 +194,18 @@ Ingen udskiftning i desserten og grappaerne.
 Sommertid har aldrig været en god idé, og det er trist hvergang, der bliver stjålet en time af ens nattesøvn.
 Men vi kommer op klokken ny-otte-isch, får vores morgenmad og er i aktion allerede lidt over ti.
 
+![Sporvogn i Milano](image/sporvogn.png)
+
 Ved et "tilfælde" åbner forretningerne også deromkring ...
 
 Lad os springe til klokken et, hvor vi står i den foreløbig sidste kø,
 til taget på domkirken.
-Der var ikke så langt op som vi huskede det, allerede efter 172 trin er man ude i det fri og efter yderligere 62 står man på tagrykken.
+Der var ikke så langt op som vi huskede det, allerede efter 172 trin er man ude i det fri 
+![Taget af domkirken](image/modlys.png)
+og efter yderligere 62 står man på tagryggen.
+Herfra kan så den rigtige Maria på det 108m høje spir
+![Taget af domkirken](image/engle.png)
+
 Det er en fantastisk oplevelse!
 
 Billeder følger, for nu skal vi snart ud af døren til fem timers Wagner i la Scala!
