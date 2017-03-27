@@ -249,3 +249,8 @@ I morgen står vi op klokken syv, så er der god tid til at nå vores fly klokke
 Denne gang skal vi over Berlin, det bliver spændende om vi også skal spæne der ;-)
 
 ## Mandag den 27. marts 2017
+
+Planen lykkedes, nu sidder vi i Milano Linate lufthavn.
+Om vi kommer til at spæne i Berlin er tvivlsomt, da vores fly nu er en time og tyve minutter forsinket.
+Air Berlin har kalkuleret 45 minutter til transfer i Berlin.
+
