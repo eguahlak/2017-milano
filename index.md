@@ -247,3 +247,5 @@ Til gengæld har vi nu prøvet alle siderne i deres menukort.
 
 I morgen står vi op klokken syv, så er der god tid til at nå vores fly klokken 10:55.
 Denne gang skal vi over Berlin, det bliver spændende om vi også skal spæne der ;-)
+
+## Mandag den 27. marts 2017
