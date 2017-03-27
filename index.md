@@ -254,3 +254,9 @@ Planen lykkedes, nu sidder vi i Milano Linate lufthavn.
 Om vi kommer til at spæne i Berlin er tvivlsomt, da vores fly nu er en time og tyve minutter forsinket.
 Air Berlin har kalkuleret 45 minutter til transfer i Berlin.
 
+Og ganske rigtigt, vi slipper for at spæne.
+Næste fly fra Tegel til København er 17:10, og det ser ud til, at det også er forsinket godt en time.
+
+Vi har fået lov til at gå udenfor, og har fået en lille pose med vand og kiks med pizza-smag hver!
+
+![Kiks med pizzasmag](images/pizza-kiks.png)
